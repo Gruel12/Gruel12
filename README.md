@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Gruel12
+- 👀 I’m interested in Fivem coding
+- 🌱 I’m currently learning Fivem coding
+- 💞️ I’m looking to collaborate on Fivem coding
+- 📫 How to reach me DM or join my discord server https://discord.gg/MYpCQAwF78
